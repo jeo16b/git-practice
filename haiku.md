@@ -5,9 +5,9 @@
 
 
 
-
-
-
+inseparable soul
+recedes loudly, deafly, loose
+ripple unknowing
 
 
 
